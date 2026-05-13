@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for PC | Adobe Audition for Windows plugin with Adobe Audition for PC | Adobe Audition for Windows rare Plugin: recording & spectrogram-view.
 
 
 
